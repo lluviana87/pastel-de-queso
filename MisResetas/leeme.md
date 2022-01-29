@@ -1,0 +1,1 @@
+Este delicioso cheesecake tiene un diseño increíble y se acompaña de uno de los sabores favoritos de todos: fresa. Una receta de repostería fácil que no te puede faltar, este pastel de queso tendrá una consistencia ligera. Además, el bizcocho está hecho con harina de almendras, lo cual complementa a la perfección a este postre.
